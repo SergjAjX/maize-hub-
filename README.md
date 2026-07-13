@@ -1,1 +1,1 @@
-https://sergjajx.github.io/maize-hub-/md
+https://sergjajx.github.io/maize-hub-/
